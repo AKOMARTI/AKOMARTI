@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AKOMARTI
-- 👀 I’m interested in ...anything 
+- 👀 I’m interested in ...anything interesting 
 - 🌱 I’m currently learning ...SE
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...akomartin88@gmail.com
